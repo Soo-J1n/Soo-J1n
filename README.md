@@ -1,6 +1,11 @@
-<img width="627" height="468" alt="image" src="https://github.com/user-attachments/assets/ef728e5d-0cbf-421e-8bfc-d0f34028cbd5" />
+
+⠀⠀⠀
+⠀⠀𝐼 𝑔𝑜 𝑏𝑦 𝑆𝐻𝐸/𝐻𝐸𝑅 𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠 𝑎𝑛𝑑 𝐼 𝑎𝑚 𝑎 𝑠𝑡𝑟𝑎𝑖𝑔ℎ𝑡 𝑎𝑙𝑙𝑦 !
+⠀⠀⠀⠀⠀୭ ˚. ᵎᵎ⠀⠀⠀⠀𝒦ℴ𝓇ℯ𝒶𝓃 , ℐ𝓉𝒶𝓁𝒾𝒶𝓃 , ℰ𝓃ℊ𝓁𝒾𝓈𝒽            ⠀⠀⠀⠀⠀⠀
 
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Bday is June X and im 14
 
 
-hbs / hgs ---------> [Władysław Kim](https://github.com/BaltoSlavonik) , [Sho](https://github.com/soulseobing) , [Toasty](https://github.com/toastissogood6-ui_) , [Tom](https://github.com/spikedfist)
+Silly lil turtle   <img width="250" height="300" alt="turtle_PNG68" src="https://github.com/user-attachments/assets/458ba574-0607-4bed-9382-6e252a8d816d" />   [𝕾𝖙𝖗𝖆𝖜𝖕𝖆𝖌𝖊](https://badbabywannacatchmeoutsideee)
+
